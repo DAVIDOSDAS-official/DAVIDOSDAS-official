@@ -20,3 +20,6 @@ Preview 3 is out → [nexus-core-davidosdas.netlify.app](https://nexus-core-davi
 - 🎵 TikTok: [@davidosdas](https://www.tiktok.com/@davidosdas)
 - 𝕏 X: [@DAVIDOSDAS](https://x.com/DAVIDOSDAS)
 - 💼 LinkedIn: [DAVIDOSDAS](https://www.linkedin.com/in/DAVIDOSDAS)
+
+
+DAVIDOSDAS is making a privacy world that can touch the real world.
